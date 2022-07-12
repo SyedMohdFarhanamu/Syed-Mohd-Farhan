@@ -1,2 +1,2 @@
 # Syed-Mohd-Farhan
-I am a Data science enthusiast.
+I am very fascinated by the impact of data on business operations, looking for great opportunities in Data Analytics and Machine Learning Engineer where I can contribute my proficient knowledge of Programming, Data Manipulation, Feature Engineering, Analytics and Business Intelligence & also use excellent understanding of business operation and analytics tools to growth of the organization.
